@@ -1,1 +1,0 @@
-# sygp.github.jp
